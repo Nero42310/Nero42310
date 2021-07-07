@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nero42310
-- 👀 I’m interested in all thigns videogames
+- 👀 I’m interested in all things videogames
 - 🌱 I’m currently learning how to make videogames
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
